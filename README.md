@@ -1,0 +1,1 @@
+# BitcoinDiploma-GermanVersion
